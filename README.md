@@ -5,7 +5,4 @@
 🚤 Lake enthusiast & kayaker  
 
 **Previously at:**  
-🚗 [Bolt](https://bolt.eu)  
-🛒 [Shopify](https://www.shopify.com)  
-📈 [DRW](https://drw.com)  
-🎮 [Ubisoft](https://www.ubisoft.com)  
+🚗 [Bolt](https://bolt.eu) • 🛒 [Shopify](https://www.shopify.com) • 📈 [DRW](https://drw.com) • 🎮 [Ubisoft](https://www.ubisoft.com)  
